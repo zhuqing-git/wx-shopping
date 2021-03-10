@@ -19,7 +19,7 @@
 
 ![image](https://user-images.githubusercontent.com/59596299/110579950-ae118180-81a2-11eb-98d2-c3350b2ab0bf.png)
 
-![Uploading image.png…]()
+
 
 
 
